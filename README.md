@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Chaptiv
-- 👀 I’m interested in Football, Pokemon and Technic
+- 👀 I’m interested in Football, Anime, Pokemon and Technic
 - 🌱 I’m currently learning IT Admin
 - ⚡ Fun fact: I'm spending more money on Pokemon then on Technic.
 
